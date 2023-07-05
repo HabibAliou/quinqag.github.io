@@ -1,1 +1,0 @@
-# quinqag.github.io
